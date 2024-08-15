@@ -6,6 +6,6 @@ boas vindas;) 🥶
 -aluna da cintia
 
 -tenho 17years
--santista
--escorpiana
--
+-santista☯︎
+-escorpiana🦂
+![](https://media1.tenor.com/m/ggLCBe9MAT4AAAAC/harley-the-joker.gif)
